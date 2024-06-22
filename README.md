@@ -1,4 +1,5 @@
-🔥 اگر دوست داری برنامه نویسی با فلاتر رو بصورت پروژه محور و با کوچینگ یاد بگیری روی این لینک کلیک کن : https://programmingshow.ir 🔥
+🔥 برنامه نویسی با فلاتر رو بصورت پروژه محور و با کوچینگ یاد بگیری روی این لینک کلیک کن : https://programmingshow.ir 🔥
+
 😇 حمایت از ما : https://zarinp.al/programmingshow
 📱 پیج اینستاگرام : https://www.instagram.com/programming_show 
 👨‍💻 گروه تلگرامی : https://t.me/programmingshow_public
